@@ -1,1 +1,4 @@
 "# tareaparadigmas" 
+"# tareaparadigmas" 
+"# tareaparadigmas" 
+"# tareaparadigmas" 
